@@ -13,4 +13,4 @@
 
 ## Contact
 - E-mail: amaralidia@gmail.com
-- LinkedIn: [Lídia Amaral Paula](https://www.linkedin.com/in/lídia
+- LinkedIn: (www.linkedin.com/in/lídia-amaral-paula)
